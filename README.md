@@ -1,2 +1,2 @@
 # PenduChain
-Dessombs / Morgana
+Dessombs / Morgana /LARROQUE
